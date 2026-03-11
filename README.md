@@ -110,3 +110,4 @@ Feel free to reach out, follow my work, or contact me for collaborations:
 - 💬 **WhatsApp:** [Contact Me Directly](https://wa.me/+962796668987)
 - 📘 **Facebook:** [ShadowHackr](https://web.facebook.com/ShadowHackr)
 - 📸 **Instagram:** [@shadowhackr](https://www.instagram.com/shadowhackr)
+- - 📸 **art:** [@shadowhackr](https://www.shadowhackr.com/2026/03/prompt-generating-chatgpt-2026.html)
